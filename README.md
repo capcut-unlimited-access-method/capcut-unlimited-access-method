@@ -1,0 +1,1 @@
+# capcut-unlimited-access-method
